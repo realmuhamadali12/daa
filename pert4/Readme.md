@@ -1,1 +1,0 @@
-# INI PERTEMUAN 4
